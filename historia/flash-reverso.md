@@ -1,3 +1,0 @@
-# Flash
-
-Flash (conocido también como The Flash) es el nombre de varios superhéroes ficticios que ... La última historia de la Edad de Oro de la Sociedad de la Justicia se publicó en All Star Comics #57 (1951, el título en sí continuó como All Star ...
